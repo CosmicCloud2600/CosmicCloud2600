@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @CosmicCloud2600
 - 👀 I’m interested in ... vr family
 - 🌱 I’m currently learning ... how to mod gtag
-- 💞️ I’m looking to collaborate on ... ytube tiktok snapchat face book
+- 💞️ I’m looking to collaborate on ... ytube(ELLIOT_GT) tiktok(elliot_gt447)
+
 - 📫 How to reach me ... classified
 
 <!---
